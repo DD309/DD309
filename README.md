@@ -1,4 +1,5 @@
 About
+
 Aspiring 𝐒𝐨𝐟𝐭𝐰𝐚𝐫𝐞 𝐃𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫 with entry-level proficiency in 𝐂𝐨𝐦𝐩𝐮𝐭𝐞𝐫 𝐒𝐜𝐢𝐞𝐧𝐜𝐞. My ambition is to help 𝐭𝐞𝐜𝐡𝐧𝐨𝐥𝐨𝐠𝐲-𝐝𝐫𝐢𝐯𝐞𝐧 𝐜𝐨𝐦𝐩𝐚𝐧𝐢𝐞𝐬 solve complex problems by using my 𝐮𝐧𝐢𝐪𝐮𝐞 𝐭𝐡𝐢𝐧𝐤𝐢𝐧𝐠 and 𝐩𝐫𝐨𝐠𝐫𝐚𝐦𝐦𝐢𝐧𝐠 𝐞𝐱𝐩𝐞𝐫𝐭𝐢𝐬𝐞.
 
 𝐌𝐲 𝐇𝐢𝐠𝐡𝐥𝐢𝐠𝐡𝐭𝐬:
